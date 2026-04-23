@@ -1,9 +1,1 @@
-rasdasddsasdsasdasdasdasdasdasd
-ASDASDAD
-ASDASD
-
-ASDASD
-aSD
-ASD
-aSD
-ASd
+you're very bad at understanding it
